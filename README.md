@@ -1,14 +1,14 @@
-#  <a href="https://trendbet6530.com/">Trendbet.com</a>
+#  <a href="https://ensaglambonus.click/">Trendbet.com</a>
 
-#  <a href="https://trendbet6530.com/">GİRİŞ İÇİN TIKLAYINIZ</a>
+#  <a href="[https://ensaglambonus.click)">GİRİŞ İÇİN TIKLAYINIZ</a>
 
 <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
 <body>
 
-<a href="https://trendbet6530.com/" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/MAG_VHEzp.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
-<a href="https://trendbet6530.com/">
+<a href="" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/MAG_VHEzp.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://ensaglambonus.click/">
 </a>
 </a>
 
